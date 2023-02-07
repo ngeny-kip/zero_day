@@ -1,1 +1,0 @@
-Have grit in you
